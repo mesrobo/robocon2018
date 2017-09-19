@@ -1,2 +1,2 @@
-# robocon2018
-all content
+# robu2018
+All team related/unrelated stuff will be posted here!!!!
